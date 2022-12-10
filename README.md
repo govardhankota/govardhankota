@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @govardhankota
 - 👀 I’m interested in TECHNOLOGIES
 - 🌱 I’m currently learning REACT,LINUX
-- 💞️ I’m looking to collaborate on SHARINGKNOWLEDGE
+- 💞️ I’m looking for job opturnatity.....
 - 📫 How to reach me govardhan.kota30@gmail.com
 
 <!---
